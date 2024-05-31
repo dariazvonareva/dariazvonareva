@@ -51,7 +51,7 @@ Click [here](https://github.com/dariazvonareva?tab=repositories) to see my proje
 
 ### ⚡️ Currently ⚡️
 - Enriched my portfolio with cool and interesting projects
-- I am eagerly ready to put all my knowledge and experience into practice
+- I am looling forward to putting all my knowledge and experience into practice
 
 ### 🙌🏻 Contact me
 - [Telegram](@Daria_Zvonok)
